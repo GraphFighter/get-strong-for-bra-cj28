@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://GraphFighter.github.io/get-strong-for-bra-cj28/ ) |
  |---------------------|----------------------:|
 
 
